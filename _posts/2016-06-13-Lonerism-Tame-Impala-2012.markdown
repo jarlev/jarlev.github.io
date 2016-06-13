@@ -1,0 +1,88 @@
+---
+layout: post
+title:  "Lonerism - Tame Impala (2012)"
+date:   2016-06-13 09:18:07 -0700
+categories: My Favorite Albums
+---
+
+<h4>Let me start by saying: I'm not a music expert. Or a critic. I didn't go to a liberal arts college. I'm just a fan of music, and an amateur musician. That's all I claim to be. My opinions are just that; mine. Feel free to disagree with me. At the end of the day, I'm just doing this for fun.</h4>
+These blog posts aren't meant to be album reviews, and I won't try to persuade you to listen to anything. I guess I just decided to write about my favorite albums because I'm really passionate about them.
+
+In my opinion, writing is an incredibly important skill to have, and it can be really fun and therapeutic as well. In an ongoing effort to improve my writing ability and cultivate a hobby, I've decided to begin writing publicly about pieces of music that have made huge impacts on my life.
+
+If you haven't heard this album before, you might want to find it online and listen to it in full. What I'm saying below, as I delve into each song, might make a bit more sense. Or it might not. Either way, you can begin to form your own opinions about the album. I recognize that it may not be for everyone. But I love Kevin Parker's music, and basically everything he does in the creative space, so I'm obviously and unshamefully (is that a word?) biased.
+
+Without further adieux...
+
+_________________________________________________________________
+
+<img class="alignnone  wp-image-495" src="https://jarlev.files.wordpress.com/2016/06/lonerism.jpg" alt="lonerism" width="595" height="595" />
+
+Ahh.... I love this album so fucking much. Every time I see this album cover, I smile. And then I take a deep breath. I run through a gambit of emotions.
+
+To me, Lonerism is like a mini acid trip with every listen. It's an album full of beautiful melodies. There are lots of pop moments, lush arrays of sounds, and yet it has a very vintage type of feel to it. Allow me to be corny for a minute: each song is like a flower; as you unfold each one, the unique layers of sounds and emotions are revealed. And it's all incredibly beautiful to explore. Whether it's your first listen or your 100th, there's always something mysterious yet wonderful to find in this album.
+
+Sometimes I have to mentally prepare myself before I begin a new listen. I guess I'm one of those obnoxious indie music snobs who strongly prefers listening to albums in their entirety, rather than picking out individual songs and moving from artist to artist or album to album. So when I get in the mood for an album like Lonerism, I'm feeling introspective. I know that there are all these crazy and varied emotions that are going to come out of me when I listen to each song, so I like to be prepared for that.
+
+Alright - let's start with the cover art. This photo was taken at the <a href="https://en.wikipedia.org/wiki/Jardin_du_Luxembourg">Jardin du Luxenbourg</a> in Paris. Judging by the picture, the photographer is behind the fences of the garden. Their point of view is meant to represent someone on the outside, looking in; depicting one of the main themes of the album - being alone, isolated. I just checked on the album's wikipedia page - it's Kevin who took the picture. Not surprised at all.
+
+I really like the photo because you can either look at it as a whole and appreciate the various elements - the colors, the retro theme, the European setting.... or you can take a further look at the people in the park. View it as the person behind the fence. As I imagine it, he/she sees people laughing and smiling, talking about all sorts of wonderful things.
+<h2>1. "Be Above It"</h2>
+It starts with a whisper.
+
+"Gotta be above it."
+
+"Gotta be above it."
+
+"Gotta be above it."
+
+Kevin's voice gets a bit louder every time he repeats the line. You can hear the steady snare and bass drums providing the support. It's like he's talking to himself in the mirror, trying to prepare himself for something very important.
+
+This song could have gone in tons of different directions at this point. And then, you hear Kev's synth for the first time. But, it's a short preview, and you're still not quite sure where this song is going.
+
+I think as the synths get stronger and more varied, the idea becomes more clear. There's a real 60's psychedelic vibe. The reverb effects are apparent, a constant not only in this album but in the majority of Tame Impala's work thus far.
+
+We hear Kevin's falsetto as he states "and I know that I gotta be above it now"...
+
+&nbsp;
+
+And then it closes with a whisper.
+
+"Gotta be above it."
+
+"Gotta be above it."
+<h2>2. "Endors Toi"</h2>
+"Soothing repeat, I look down at my feet. It's a hypnotist's arm, and it works like a charm."
+
+This is mostly instrumental, but I think Kevin really makes the few words count in this song count.
+
+&nbsp;
+
+&nbsp;
+<h2>3. "Apocalypse Dreams"</h2>
+This is my favorite Tame Impala song. It's not easy to pick just one, trust me. But it's also clear to me that this is the one.
+
+It starts out with a bright and positive vibe. You hear a few piano chords and that steady snare drum pacing the song from the start.
+<h3><em>"This could be the day that we push through. It could be the day that all our dreams come true."</em></h3>
+The first lines of the song. Whoa. Right after Kevin sings the "true", you hear these high, stabbing piano keys that really help accentuate what he's trying to say.
+
+&nbsp;
+<h2>4. "Mind Mischief"</h2>
+<h2></h2>
+<h2>5. "Music to Walk Home By"</h2>
+<h2></h2>
+<h2>6. "Why Won't They Talk to Me?"</h2>
+<h2></h2>
+<h2>7. "Feels Like We Only Go Backwards"</h2>
+<h2></h2>
+<h2>8. "Keep On Lying"</h2>
+This song always reminds me of "Day Tripper" by the Beatles. Kevin does this little riff in the bridge/solo here and it sounds oddly familiar.... I love it.  It's a pretty recognizable riff, so you'll know it when you hear it in this song.
+<h2>9. "Elephant"</h2>
+Ahhh, Elephant. This is perhaps TI's most well-known song to-date. It's been featured in a bunch of TV ads and shows - I remember one for a Blackberry phone, in particular.
+
+&nbsp;
+<h2>10. "She Just Won't Believe Me"</h2>
+<h2></h2>
+<h2>11. "Nothing That Has Happened So Far Has Been Anything We Could Control"</h2>
+<h2></h2>
+<h2>12. "Sun's Coming Up"</h2>
